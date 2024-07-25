@@ -5,6 +5,7 @@
 ### Paul Quito
 - [Rahul Verma](https://github.com/rahuwul) **23-07-2024: woah there are too many people here lessgo**
 Abdullah Ansari
+- Roberto Agustín Miguel Santiago Samuel Trujillo Veracruz **7/25/2024**
 - [Kaleb Fenley](https://github.com/KalebFenley) **7/21/24**
 -[Frank Costanza](https://github.com/wrx777)**My first contribution**
 -[Arjun TK](https://github.com/Arjun941)**Good shit frfr.find me on insta @arjunoffspace**
